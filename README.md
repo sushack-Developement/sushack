@@ -1,2 +1,2 @@
 # sushack
-idk future skid in 3arthh4ck 1.6.2 base
+3arthh4ck skid in oyvey base lol
